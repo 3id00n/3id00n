@@ -1,0 +1,2 @@
+- 👋 Hi, ich bin @Thanh Hung Mai
+- Bsc.Elektrotechnik Student am Technische Universität Berlin
